@@ -6,7 +6,7 @@
 
 ## Harita (Map)
 
-![](https://raw.github.com/azer/free-west-antalya/master/map.jpg)
+![](https://raw.github.com/azer/free-west-antalya/master/map.png)
 
 ## Deklarasyon (Declaration in Turkish)
 
