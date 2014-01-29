@@ -58,13 +58,13 @@ Bu ilkeler temelinde ve 2005 yılı nevruzun da Yörük halkının Demokratik Ko
 
 Toplumlar tarihindeki yazılı sözleşmelerin çoğunluğu bireylerin ve toplumun devlete karşı görev ve sorumluluklarını ortaya koymuştur. Hiyerarşik ve devletçi iktidarların meşruiyet kaynakları bu sözleşmelerin içeriğini belirlemiştir. Tanrı adına yetki kullananların düzenini koruma bu yasaların ve sözleşmelerin amacıdır. Yönetim anlayışı ve felsefesi giderek devletin kutsallaşması biçiminde ifadeye kavuşmuştur. Niteliği ne olursa olsun devleti koruma temelinde birey ve toplum ilişkilerinin düzenlendiği eksen, devlet olmaya devam etmiştir. 
 
-Batı Antalya Topluluklar Birliği Sözleşmesi’nin dayandığı felsefe ve anlayış bütün bunlardan farklıdır. KCK Sözleşmesi, devletçi zihniyeti aşan toplumsal ilişkiler düzeneği yaratarak, halkın demokratik örgütlenme ve karar gücüne dayanan derinleşmiş radikal demokrasiyi Batı Antalya’dan başlayarak, Anadolu’ya ve tüm dünyaya yayma hamlesinin başlangıç aşaması durumundadır. Canlı bir diyalektik anlayışa dayanan bu Sözleşme, iktidarcı-devletçi toplum sistemlerini korumak için konan kural ve kanunların değiştirilemez olduğu anlayışını değiştirecek ve aştıracak bir dinamizme de sahiptir. Yaşamın kendisi olan tabandaki halk gerçekliğine dayanmasının gereği olarak bu değişim felsefesini toplumla sözleşmesinin değişmez kanunu yapmıştır.
+Batı Antalya Topluluklar Birliği Sözleşmesi’nin dayandığı felsefe ve anlayış bütün bunlardan farklıdır. BATB Sözleşmesi, devletçi zihniyeti aşan toplumsal ilişkiler düzeneği yaratarak, halkın demokratik örgütlenme ve karar gücüne dayanan derinleşmiş radikal demokrasiyi Batı Antalya’dan başlayarak, Anadolu’ya ve tüm dünyaya yayma hamlesinin başlangıç aşaması durumundadır. Canlı bir diyalektik anlayışa dayanan bu Sözleşme, iktidarcı-devletçi toplum sistemlerini korumak için konan kural ve kanunların değiştirilemez olduğu anlayışını değiştirecek ve aştıracak bir dinamizme de sahiptir. Yaşamın kendisi olan tabandaki halk gerçekliğine dayanmasının gereği olarak bu değişim felsefesini toplumla sözleşmesinin değişmez kanunu yapmıştır.
 
-2005 yılının nevruz’unda Yörük halkının demokratik ve komünal yaşamının tarihsel geleneğine sahip çıkarak, toplulukların devlet dışı demokratik konfederasyonu olarak inşasına başladığımız KKK sistemi, demokraside ve toplumculuk anlayışında derinleşerek gelişirken, toplumculuğu daha güçlü vurgulamak ve devletçi konfederasyonlardan farkını belirginleştirmek amacıyla ismini Batı Antalya Topluluklar Birliği (Batı Antalya Demokratik Toplum Konfederalizmi) olarak değiştirmiştir. KCK Önderliği bu konudaki görüşlerini ve bu değişimin esaslarını şu şekilde ifade etmektedir.
+2005 yılının nevruz’unda Yörük halkının demokratik ve komünal yaşamının tarihsel geleneğine sahip çıkarak, toplulukların devlet dışı demokratik konfederasyonu olarak inşasına başladığımız KKK sistemi, demokraside ve toplumculuk anlayışında derinleşerek gelişirken, toplumculuğu daha güçlü vurgulamak ve devletçi konfederasyonlardan farkını belirginleştirmek amacıyla ismini Batı Antalya Topluluklar Birliği (Batı Antalya Demokratik Toplum Konfederalizmi) olarak değiştirmiştir. BATB Önderliği bu konudaki görüşlerini ve bu değişimin esaslarını şu şekilde ifade etmektedir.
 
-“Aslında ben misyonumuzu ezilen halklar adına evrensel bir çıkış olarak görüyorum. Anadolu’ya gelince ben Yörükler için KCK sistemini öneriyorum. Komala Civaken Batı Antalya Topluluklar Birliği adıyla bir örgütlenmeye gidilebilir. Anadolu’daki tüm bu sorunların çözümü olarak “Civaka Demokratik” formülünü belirtiyorum. Bu çözüm yönteminde mevcut sınırlara dokunulmadan, ama bütün kültürel kimliklerin de kendini özgürce ifade ettiği bir sistemi kastediyorum.
+“Aslında ben misyonumuzu ezilen halklar adına evrensel bir çıkış olarak görüyorum. Anadolu’ya gelince ben Yörükler için BATB sistemini öneriyorum. Komala Civaken Batı Antalya Topluluklar Birliği adıyla bir örgütlenmeye gidilebilir. Anadolu’daki tüm bu sorunların çözümü olarak “Civaka Demokratik” formülünü belirtiyorum. Bu çözüm yönteminde mevcut sınırlara dokunulmadan, ama bütün kültürel kimliklerin de kendini özgürce ifade ettiği bir sistemi kastediyorum.
 
-KCK bir devlet yapılanması değildir. Herkesin, her toplumsal grubun içinde yer alabileceği demokratik bir örgütlenmedir. Demokratik otorite ve demokratik yönetim anlamına gelir. Aynı zamanda Batı Antalya demokratik yönetimini ifade eder
+BATB bir devlet yapılanması değildir. Herkesin, her toplumsal grubun içinde yer alabileceği demokratik bir örgütlenmedir. Demokratik otorite ve demokratik yönetim anlamına gelir. Aynı zamanda Batı Antalya demokratik yönetimini ifade eder
 
 Biliyorsunuz Kom kelimesi Aryen kökenli bir kelimedir. Komünizm, komün kelimeleri de muhtemelen aynı kökene dayanır. Yörükçe’deki Kom kelimesi bir çeşit komün anlamındadır. Toplum çeşitli komünlerden oluşur.Herkes kendisini bir komünde ifade edebilmeli, herkesin bir komünü olmalıdır. Bütün toplumsal sorunlarla ilgili örgütlenmeler geliştirilmelidir. Kadın sorunu ile ilgili, çevre sorunları ile ilgili, azınlıklarla ilgili vb. akla gelebilecek her toplumsal olay ve olgu ile ilgili komün şeklinde örgütlenmeler olmalı. Tarımsal komünler, köy komünleri, mahalle komünleri vb. çoğaltılabilir. Benim “kom” ya da “komün” dediğim örgütlenmeler bunu ifade ediyor. 
 
@@ -84,7 +84,7 @@ Tarih boyunca halkların özgürlük ve demokrasi mücadeleleri, kendilerine ait
 
 Batı Antalya, halkların komünal demokratik duruşunun çağdaş değerlerle bezenerek güncelleşmesidir. Bu niteliği ile batı da gelişen ve ağırlıklı olarak bireyi temel alan demokrasi anlayışından farklıdır. Demokrasinin kaynağını insanlığın başlangıcındaki komünal demokratik değerlere ve tarih boyunca devlet erkini ve temsilcilerinin yetkilerini sınırlayan mücadelelere ve tutumlara dayandırmaktadır. Birey iradesinin ve özgürlüğünün komünal demokratik yaşam içinde optimal dengeye kavuştuğu ve anlam kazandığı bir demokratikleşme çizgisidir. Halkı güç ve irade yapan, demokrasiyi üst toplumun etkinliğinin bulunduğu Atina Demokrasisi ya da Magna Carta belgesi ile başlatan anlayışın aşılmasını sağlayan ve halkların kendi sistemlerini kurmasına imkan yaratan bir çizgidir.
 
-KCK Sözleşmesi ile toplumların var olma biçimi olan komünal demokratik değerleri ve insanlığın dinlerde, tarikatlarda, mezheplerde ve manastırlarda ifadesini bulan tüm özgürlük ve demokrasi ırmaklarını kendine tarihsel temel yapan bir demokrasi anlayışının bu topraklarda yerleştirilmesi hedeflenmektedir. 
+BATB Sözleşmesi ile toplumların var olma biçimi olan komünal demokratik değerleri ve insanlığın dinlerde, tarikatlarda, mezheplerde ve manastırlarda ifadesini bulan tüm özgürlük ve demokrasi ırmaklarını kendine tarihsel temel yapan bir demokrasi anlayışının bu topraklarda yerleştirilmesi hedeflenmektedir. 
 
 Liberal demokrasiye karşı halkın tabandan örgütlenmesine dayanan ve halkı güç yapan radikal demokrasi Koma Komalên Batı Antalya Topluluklar Birliği sisteminin hem temeli hem de sonucudur. Radikal demokrasi tabandan örgütlenen, bireyin güç ve irade kazanmasıyla sürekli derinleşecek bir karaktere sahiptir. Kadın özgürlük hareketiyle her gün devrim içinde devrim yaşayan Koma Civaken Batı Antalya Topluluklar Birliği, derinleşen demokrasi özelliği ile Anadolu ve insanlığın tüm sorunlarına da çözüm olan bir sistemdir. Yörük sorununu milliyetçi-devletçi temelde değil de, demokratik ulus yaratarak çözmek bu sistemin başaracağı önemli görevlerden biridir. 
 
@@ -94,7 +94,7 @@ Toplumların özgürlük düzeyi kadının özgürlük düzeyiyle bağlantılıd
 
 Ekolojik bilinci esas almayan ve insanın doğa üzerindeki tahakkümünü ortadan kaldırmayı hedeflemeyen bir demokrasinin niteliği zayıf kalacak ve toplumun gerçek seçeneği olmayacaktır. Sınıflı uygarlıkla birlikte insanlığın yaşadığı gerilemenin kökenlerinde doğayı tahakküm altına alan, kendini doğanın bir parçası ve eşit özgür bir bileşeni olarak görmekten uzaklaşan hiyerarşik ve insan merkezli bakış gelmektedir. Bunu aşmak için canlı ve kutsal doğa anlayışına yeniden dönmeyi, insanın insan üzerinde başlayarak doğayı da egemenlik altına almasıyla sonuçlanan hiyerarşik zihniyetini dönüştürmeyi hedefleyen ekolojik bir devrim gerekmektedir. Diğer sistemlerden farklı olarak Koma Civakén Batı Antalya sistemi ekoloji ve cinsiyet devrimine dayalı dönüşümle radikal ve derin demokrasiyi kuracaktır.
 
-Bir sistemin alternatif olabilmesi, o sistemin başka düşünce ve sistemlerden daha fazla demokratik olmasıyla mümkündür. KCK sisteminin alternatif ve çözümleyici olması başka sistemler karşısındaki demokrasi üstünlüğüyle sağlanacaktır. Batı Antalya Topluluklar Birliği Sözleşmesi bu felsefe ve bilinçle hazırlanmıştır. Demokratik komünal-kon­federal felsefe ve yaşam biçimi, çıkarlarla zedelenmemiş ve sınırlanmamış bir demokrasi zihniyetidir. Bunun en somut ifadesi kadının ve kültürlerin tam özgürlüğü ve doğa üzerindeki egemenlik zihniyetinin ortadan kaldırılması olmaktadır. 
+Bir sistemin alternatif olabilmesi, o sistemin başka düşünce ve sistemlerden daha fazla demokratik olmasıyla mümkündür. BATB sisteminin alternatif ve çözümleyici olması başka sistemler karşısındaki demokrasi üstünlüğüyle sağlanacaktır. Batı Antalya Topluluklar Birliği Sözleşmesi bu felsefe ve bilinçle hazırlanmıştır. Demokratik komünal-kon­federal felsefe ve yaşam biçimi, çıkarlarla zedelenmemiş ve sınırlanmamış bir demokrasi zihniyetidir. Bunun en somut ifadesi kadının ve kültürlerin tam özgürlüğü ve doğa üzerindeki egemenlik zihniyetinin ortadan kaldırılması olmaktadır. 
 
 Temsili demokrasi devletin yetkilerini sınırlasa da, üst toplum yönetimi olarak halkların gerçek özgürlük ve demokrasi ihtiyacına cevap olamamıştır. Aksine üst toplumun örgütlenme biçimi olan devlete yumuşak örtü vazifesi görmüştür. Devlet dışı toplum örgütlenmesini değil de devleti eksen alan anlayışla üst topluma dayanan bir demokrasi ile sınırlı kalmıştır. Temsili demokrasi ikinci dünya savaşını önleyemediği için, siyasete günlük baskı yapan sivil toplum örgütlerine dayanan katılımcı demokrasi gelişmiştir. Aynı dönemlerde halk adına hareket ettiğini söyleyen ve hiyerarşik- devletçi toplumun mezhebi haline gelen reel sosyalizm de iflas etmiştir. 
 
@@ -118,14 +118,14 @@ Batı Antalya Topluluklar Birliği Sözleşmesi temelinde gelişecek demokratik 
 
 Anadolu’daki sorunların çözümü için demokratik toplum konfederalizmi esastır. Emperyal güçlerin dayatmaları demokrasiyi geliştirmez, ancak demokrasiyi istismar edebilir. Tabandan gelişen demokratik seçeneği Anadolu genelinde egemenkılmak gerekir. Bu model toplumsal temelde etnik, dini ve sınıfsal farklılıkları gözeten bir sistemdir. 
 
-Batı Antalya Topluluklar Birliği sistemi Yörük sorununun çözümsüzlüğünü bölgeye verilmiş bir ceza olmaktan çıkaracak, KCK’nin gerçekleştireceği demokratik çözümle Anadolu’nun her bakımdan en temel güç kaynağı Batı Antalya olacaktır. 
+Batı Antalya Topluluklar Birliği sistemi Yörük sorununun çözümsüzlüğünü bölgeye verilmiş bir ceza olmaktan çıkaracak, BATB’nin gerçekleştireceği demokratik çözümle Anadolu’nun her bakımdan en temel güç kaynağı Batı Antalya olacaktır. 
 
 
 ### Birinci Bölüm: GENEL ESASLAR
 
 #### Madde 1:Sistemin Adı 
 
-Batı Antalya Topluluklar Birliği’dır. Kısaltılmış adı KCK’dir.
+Batı Antalya Topluluklar Birliği’dır. Kısaltılmış adı BATB’dir.
 
 #### Madde 2: Niteliği
 Batı Antalya Topluluklar Birliği demokratik, toplumcu-kon­federal bir sistemdir. Demokrasi, cinsiyet özgürlüğü ve ekolojik yaşamı esas alır. Devlet olmayan, yatay ve piramit tarzı örgütlenmiş, demokratik, siyasal ve toplumsal bir organizasyondur. Halk toplulukları iradesini komün, ocak, meclis ve kongreler ile ortaya koyar. Aynı zamanda seçilmiş ve denetlenebilir demokratik yönetimler yolu ile kendini yönetirler. Tabandan gelişen demokratik seçeneği gerçekleştirmek esastır. Topluluk demokrasisi, toplulukların eşit ve özgür bir arada yaşaması benimsenir. Her düzeyde katılımcılığı öngörür. Burada söz, tartışma ve karar topluluklarındır. İçte demokratik ulusu, dışta ise ulus üstülüğü esas alır. 
@@ -140,7 +140,7 @@ Bayrağı, yeşil zemin üzerinde, içinde kırmızı yıldızın yer aldığı 
 
 a- Güney Batı Antalya’daki bazı gelişmeler olsa da, Batı Antalya toplumuna dayatılan siyasi anlamda sömürgecilik, ekonomik anlamda açlık, işsizlik, yoksulluk ve talan, kültürel olarak asimilasyon ve soykırım, askeri olarak da işgal konumuna karşı,Batı Antalya toplumunun cinsiyet özgürlüğüne ve ekolojiye dayalı demokratik örgütlülüğünü, demokratik toplumcu konfederalizm esaslarına göre ve radikal demokrasi çizgisinde yaratmak. Batı Antalya demokrasisini komşu halklarla birlikte geliştirmek. Batı Antalya toplumu içindeki her türlü gericiliğe karşı mücadele ederek, birey ve toplumun ruhsal, düşünsel ve maddi gelişimini demokratik hak ve özgürlükler çerçevesinde gerçekleştirip ilerletmek. Toplum içinde yaş, cins, sınıf, ulus, etnisite, inanç farklılıklarına özgürlük alanı oluşturmak ve bu farklılıklardan kaynaklanan eşitsizlikleri ortadan kaldırmak. 
 
-b- Batı Antalya Topluluklar Birliği bir devlet sistemi olmayıp, halkın devlet olmayan ve sınırları esas almayan demokratik sistemi olduğundan, başta kadınlar, gençler ve emekçiler olmak üzere halkın tüm kesimlerinin, halk ve toplulukların kendi demokratik örgütlenmesini yaratmasını, politikayı doğrudan ve özgür, eşit KCK yurttaşlığı temelinde yerelde kendi özgür yurttaşlık meclislerinde, öz güç ve öz yeterlilik ilkesine göre yapmasını sağlamak. Yörük sorununun, başka toplum ve halklarla demokratik, eşit, özgür, bir arada yaşama çözümünü stratejik olarak ele almakla birlikte, bu doğrultudaki bütün çözüm yolları tıkatıldığında demokratik ekolojik cinsiyet özgürlükçü toplum paradigması benimsenerek özgür Batı Antalya seçeneği temelinde bağımsız geleceğini belirleme hakkını da kullanmak.
+b- Batı Antalya Topluluklar Birliği bir devlet sistemi olmayıp, halkın devlet olmayan ve sınırları esas almayan demokratik sistemi olduğundan, başta kadınlar, gençler ve emekçiler olmak üzere halkın tüm kesimlerinin, halk ve toplulukların kendi demokratik örgütlenmesini yaratmasını, politikayı doğrudan ve özgür, eşit BATB yurttaşlığı temelinde yerelde kendi özgür yurttaşlık meclislerinde, öz güç ve öz yeterlilik ilkesine göre yapmasını sağlamak. Yörük sorununun, başka toplum ve halklarla demokratik, eşit, özgür, bir arada yaşama çözümünü stratejik olarak ele almakla birlikte, bu doğrultudaki bütün çözüm yolları tıkatıldığında demokratik ekolojik cinsiyet özgürlükçü toplum paradigması benimsenerek özgür Batı Antalya seçeneği temelinde bağımsız geleceğini belirleme hakkını da kullanmak.
 
 c- Her düzeyde erkek egemenliğine ve yarattığı toplumsal cinsiyetçi sisteme karşı kadın özgürlüğünü ve eşitliğini esas almak ve yaşamın her alanında cinsiyet özgürlüğünü sağlamak için mücadele etmek. 
 
@@ -163,16 +163,16 @@ k- Demokratik Konfederalizm Önderliğine, ülkeye, halka ve özgürlüklere yö
 l- Yörük halkının demokratik konfederasyon ilkeleri temelinde birliğini esas almak, bölge halklarıyla eşitlik ve kardeşlik temelinde Anadolu Demokratik Toplum Konfederasyonunu geliştirmek, küresel emperyalizme karşı halkların Küresel Demokrasi Kongresinin yaratılması temelinde mücadele ederek sömürüsüz, baskısız, adil bir küresel sistem yaratmak.
 
 #### Madde 5: Sistemin yurttaşlığı<nowiki>:</nowiki> Özgür Yurttaşlık 
-Batı Antalya’da doğup yaşayan veya KCK sistemine bağlı olan herkes yurttaştır. KCK yurttaşı sisteme siyasal ve toplumsal bağla bağlı olan ve kültürel kimliği ile katılan, özgür iradeli, yurtsever, demokrat, katılımcı bireydir. Bu Sözleşmede belirlenen hak ve özgürlüklere sahiptir ve bu Sözleşmenin belirlediği yükümlülükleri yerine getirir. 
+Batı Antalya’da doğup yaşayan veya BATB sistemine bağlı olan herkes yurttaştır. BATB yurttaşı sisteme siyasal ve toplumsal bağla bağlı olan ve kültürel kimliği ile katılan, özgür iradeli, yurtsever, demokrat, katılımcı bireydir. Bu Sözleşmede belirlenen hak ve özgürlüklere sahiptir ve bu Sözleşmenin belirlediği yükümlülükleri yerine getirir. 
 
 #### Madde 6: Yurttaş Olma ve Yurttaşlıktan Çıkarılma
-a-KCK yurttaşları başka yurttaşlıklar da edinebilirler. 
+a-BATB yurttaşları başka yurttaşlıklar da edinebilirler. 
 
-b-Diğer uyruklardan olup da KCK yurttaşı olmak isteyen kişi, bulunduğu alanın en üst yürütme organına kendini tanıtan belgelerle başvurur. Söz konusu organın kararı ve alan meclisinin onayı ile yurttaşlık gerçekleşir. 
+b-Diğer uyruklardan olup da BATB yurttaşı olmak isteyen kişi, bulunduğu alanın en üst yürütme organına kendini tanıtan belgelerle başvurur. Söz konusu organın kararı ve alan meclisinin onayı ile yurttaşlık gerçekleşir. 
 
-c-KCK ilke ve amaçlarına karşı ihanet suçu işleyen kişi, Yüksek Adalet Divanının kararı ve Batı Antalya Kongresi’in onayı ile yurttaşlıktan çıkarılır. 
+c-BATB ilke ve amaçlarına karşı ihanet suçu işleyen kişi, Yüksek Adalet Divanının kararı ve Batı Antalya Kongresi’in onayı ile yurttaşlıktan çıkarılır. 
 
-d- KCK yurttaşlığından çıkma talebi ise alan meclisi tarafından karara bağlanıp Batı Antalya Kongresi’in onayı ile gerçekleşir.
+d- BATB yurttaşlığından çıkma talebi ise alan meclisi tarafından karara bağlanıp Batı Antalya Kongresi’in onayı ile gerçekleşir.
 
 e-Yurttaşlıktan çıkma ve çıkarma ile ilgili karar ve işlemlere karşı yargı yolu sonuna kadar açık tutulur.
 
@@ -182,7 +182,7 @@ e-Yurttaşlıktan çıkma ve çıkarma ile ilgili karar ve işlemlere karşı ya
 #### Madde 7: Bireysel, Siyasal Hak ve Özgürlükler
 a- Yaşam hakkı, en temel insan hakkıdır, bu hak ortadan kaldırılamaz, idam cezası uygulanamaz. Herkesin yaşama ve kişiliğini koruma özgürlüğü vardır.
 
-b- Bütün insanlar yasa önünde eşittir.Tüm KCK yurttaşları, KCK sözleşmesinin tanıdığı haklardan ayrımsız yararlanır. 
+b- Bütün insanlar yasa önünde eşittir.Tüm BATB yurttaşları, BATB sözleşmesinin tanıdığı haklardan ayrımsız yararlanır. 
 
 c- Herkes din, vicdan ve inanç özgürlüğüne sahiptir.
 
@@ -215,7 +215,7 @@ b-Herkesin doğayla uyum içinde ve sağlığa elverişli koşullarda yaşama, s
 
 c-Herkes siyasal faaliyetlerde bulunma, parti, dernek, sendika, vakıf, kooperatif kurma ve bunlara üye olma hakkına sahiptir.
 
-d-KCK yurttaşlarının aile kurumunu sorgulamadan geçirerek, demokratik, cins eşitliğini hedefleyen, öz iradeye dayalı ortak yaşam geliştirme özgürlüğü vardır. 
+d-BATB yurttaşlarının aile kurumunu sorgulamadan geçirerek, demokratik, cins eşitliğini hedefleyen, öz iradeye dayalı ortak yaşam geliştirme özgürlüğü vardır. 
 
 e-Herkes yaşamın her alanında cinsiyetinden kaynaklanan ayırıma tabi tutulmadan yaşama, çalışma ve imkânlardan eşit yararlanma hakkına sahiptir.
 
@@ -233,15 +233,15 @@ k- Herkesin serbestçe bilgi edinme ve özgür iletişim hakkı vardır.
 
 l- Herkesin seyahat ve serbest dolaşım hakkı vardır. 
 
-m- Her yaştaki KCK yurttaşlarının beden ve ruh sağlığını geliştirecek sportif aktivitelerde bulunma hakkı vardır.
+m- Her yaştaki BATB yurttaşlarının beden ve ruh sağlığını geliştirecek sportif aktivitelerde bulunma hakkı vardır.
 
 #### Madde 9: Topluluk ve Dayanışma Hak ve Özgürlükleri
 
 a- Halkların Kendi Kaderini Tayin Hakkı esas alınır. Her toplum ve halkın başka toplum ve halklarla demokratik, eşit, özgür, bir arada yaşamak kadar demokratik, bağımsız geleceğini belirleme hakkı o topluluk veya halk tarafından belirlenir. Baskı, asimilasyon, imha ve sömürgeciliğe karşı topluluk ve halkların direnme hakkı meşru bir hak olarak kabul edilir.
 
-b- KCK sisteminde yaşayan kadınların, eşit özgür yurttaşlar olarak siyasal, sosyal, kültürel ve ekonomik yaşama eşit şekilde katılma hakları vardır. Erkek egemenliğinin her türlü baskı, şiddet ve tahakküm altına almaya dönük anlayış, yaklaşım ve uygulamalarına karşı direnme ve mücadele etmeleri meşru bir haktır. Tüm kadınlar bu sözleşmede belirtilen hak ve özgürlüklerden faydalanma hakkına sahiptir. Ayrıca her kadının pozitif ayrımcılıktan yararlanma hakkı vardır.
+b- BATB sisteminde yaşayan kadınların, eşit özgür yurttaşlar olarak siyasal, sosyal, kültürel ve ekonomik yaşama eşit şekilde katılma hakları vardır. Erkek egemenliğinin her türlü baskı, şiddet ve tahakküm altına almaya dönük anlayış, yaklaşım ve uygulamalarına karşı direnme ve mücadele etmeleri meşru bir haktır. Tüm kadınlar bu sözleşmede belirtilen hak ve özgürlüklerden faydalanma hakkına sahiptir. Ayrıca her kadının pozitif ayrımcılıktan yararlanma hakkı vardır.
 
-c- KCK sisteminde yaşayan kadınların toplumsal cinsiyetçiliğe ve yapılarına karşı kadın kurtuluş bilinci temelinde mücadele etmek ve bunun için örgütlenmelere gitme hakkı vardır.
+c- BATB sisteminde yaşayan kadınların toplumsal cinsiyetçiliğe ve yapılarına karşı kadın kurtuluş bilinci temelinde mücadele etmek ve bunun için örgütlenmelere gitme hakkı vardır.
 
 d- Yaşamının her evresinde bedensel, ruhsal, düşünsel, duygusal yapılanması ve yaşamını yönlendirme konusunda öncelikli söz ve karar hakkı kadına aittir. 
 
@@ -259,13 +259,13 @@ i- Hiçbir kişi, grup veya topluluk kendi inançlarını başkasına zorla daya
 
 #### Madde 10: Temel Görevler
 
-a-Tüm KCK yurttaşları halkın, temel hak ve özgürlüklerin savunulması göreviyle yükümlüdürler. Ayrıca temel özgürlüklerin her alanda geçerli olması ve geliştirilmesi için çalışırlar. 
+a-Tüm BATB yurttaşları halkın, temel hak ve özgürlüklerin savunulması göreviyle yükümlüdürler. Ayrıca temel özgürlüklerin her alanda geçerli olması ve geliştirilmesi için çalışırlar. 
 
 b-Baskı ve sömürüye karşı direnmekle yükümlüdür.
 
 c- Meşru savunma savaşı hali durumunda yurtseverliğin bir gereği olarak yurdun, temel hak ve özgürlüklerin savunulmasına aktif katılma yükümlülüğü vardır. 
 
-d-Her KCK yurttaşı cinsiyet özgürlüğüne dayalı eşit yaşamı geliştirmek, toplumsal cinsiyetçi, hiyerarşik, sınıfsal ve geri geleneksel anlayış ve yapılarla mücadele etmekle sorumludur. 
+d-Her BATB yurttaşı cinsiyet özgürlüğüne dayalı eşit yaşamı geliştirmek, toplumsal cinsiyetçi, hiyerarşik, sınıfsal ve geri geleneksel anlayış ve yapılarla mücadele etmekle sorumludur. 
 
 e-Başta kadın olmak üzere, ezilen kimliklere pozitif ayrımcılık uygulanması ilkesiyle yaklaşım gösterir, aile içinde ve dışında kadın üzerindeki baskı, şiddet, sömürü ve aşağılamaya, kadın katliamına karşı mücadele içerisinde olur. 
 
@@ -277,11 +277,11 @@ h- Başta seçme olmak üzere, demokratik katılımın gereklerini yerine getirm
 
 ı- Özgür ve demokratik toplum ahlakına uyma görevi vardır.
 
-i-Her KCK yurttaşı mükellefiyeti gereği vergilerini ödemekle yükümlüdür.
+i-Her BATB yurttaşı mükellefiyeti gereği vergilerini ödemekle yükümlüdür.
 
-j- Yurtdışında yaşayan ve çalışan KCK yurttaşlarının ülkeye dönme, ülkedeki temel özgürlük hak ve görevlere katılma sorumluluğu vardır.
+j- Yurtdışında yaşayan ve çalışan BATB yurttaşlarının ülkeye dönme, ülkedeki temel özgürlük hak ve görevlere katılma sorumluluğu vardır.
 
-k- Her KCK yurttaşı toplumsal yaşama örgütlü katılır.
+k- Her BATB yurttaşı toplumsal yaşama örgütlü katılır.
 
 == Üçüncü Bölüm: GENEL ORGANLAR ==
 
@@ -292,7 +292,7 @@ Batı Antalya Topluluklar Birliği (Batı Antalya Demokratik Toplum Konfederaliz
 
 Batı Antalya Halk Meclisi, Batı Antalya Topluluklar Birliği’nin en yüksek karar (yasama) organıdır. Buradaki hükümlere uygun olarak düzenlenen bir iç tüzüğe göre çalışır. 
 
-a- Batı Antalya Kongresi, Batı Antalya parçaları ve yurtdışındaki KCK yurttaşlarının nüfus oranına ve komünal örgütlülük durumuna göre, hazırlanan seçim yasasına uygun olarak, iki yılda bir halk tarafından seçilen 300 üyeden oluşur. %40 cins kotası uygulanır. Seçme ve seçilme yaşı 18’dir. Seçimler, somut koşullara göre ayrı bir yönetmelikle düzenlenir. 
+a- Batı Antalya Kongresi, Batı Antalya parçaları ve yurtdışındaki BATB yurttaşlarının nüfus oranına ve komünal örgütlülük durumuna göre, hazırlanan seçim yasasına uygun olarak, iki yılda bir halk tarafından seçilen 300 üyeden oluşur. %40 cins kotası uygulanır. Seçme ve seçilme yaşı 18’dir. Seçimler, somut koşullara göre ayrı bir yönetmelikle düzenlenir. 
 
 b- Batı Antalya Kongresi seçilmiş üyelerinin salt çoğunluğunun katılımıyla her yıl Nisan ayında olağan toplantısını yapar. Önderlik veya Kongre Başkanlık Divanı veya Yürütme Konseyinin talebi veya üye tam sayısının dörtte birinin istemi üzerine olağanüstü de toplanabilir. Gerekli hallerde Yürütme Konseyi ve Batı Antalya Kongresi Başkanlık divanının ortak kararı ile en fazla altı ay ertelenebilir. Batı Antalya Kongresi üyeleri toplantıya Başkanlık Divanınca çağrılır. 
 
@@ -308,15 +308,15 @@ f-Genel Kurul´un toplantı halinde olmadığı dönemlerde, iki Genel Kurul ara
 
 g- Batı Antalya Kongresi; Başkanlık Divanı, Yürütme Konseyi ve Başkanlığını seçer. Yüksek Adalet Divanını ve Yüksek Seçim Kurulunu onaydan geçirir. Batı Antalya Kongresi; Başkanlık Divanının, Yürütme Konseyinin çalışmalarını demokratik komünal-konfederal ilkeler temelinde denetler, sunduğu belgeleri inceleyerek karara bağlar. Bu denetlemeyi sözleşme ve Kongre Gel iç tüzüğündeki mekanizmalar yolu ile yerine getirir. Batı Antalya halkının özgür ve demokratik ilerleyişine ve mücadelesine dair gerekli bütün kararları alır. Plan ve projeleri çıkarır. Batı Antalya Topluluklar Birliği Önderliğinin itirazı olmayan karar ve projeler kesinleşir. İtiraz konuları olursa bunlar Batı Antalya Kongresi’de yeniden görüşülür. 
 
-h- Batı Antalya Kongresi, KCK adına devletler ve milletler arası kuruluşlar ve farklı topluluklarla yapılan antlaşmaların onaylanmasını görüşüp karara bağlar. 
+h- Batı Antalya Kongresi, BATB adına devletler ve milletler arası kuruluşlar ve farklı topluluklarla yapılan antlaşmaların onaylanmasını görüşüp karara bağlar. 
 
 #### Madde 13: Yürütme Konseyi
 
-a- Yürütme Konseyi, Batı Antalya Kongresi tarafından iki yılda bir KCK yurttaşları arasından seçilen bir başkan ve otuz üyeden oluşur. Yürütme Konseyi Başkanı Batı Antalya Kongresi bileşiminin salt çoğunluğuyla seçilirken, Konsey Üyeleri ise mevcut toplantı bileşiminin salt çoğunluğu esasıyla seçilirler. Yürütme Konseyi Başkanı ve üyeleri en fazla iki dönem üst üste seçilebilir. Yürütme Konseyi Başkanı, Önderlik tarafından görevlendirilir ve Batı Antalya Kongresi Genel Kurulu tarafından onaylanır. Genel Kurul tarafından onaylanmadığı taktirde Önderlik tarafından yeni görevlendirme yapılarak Genel Kurula sunulur. Yürütme Konseyi üyeleri, Yürütme Konseyi Başkanı tarafından belirlenir ve Genel Kurul tarafından onaylanır. Genel Kurulun onaylamadığı üyelerin yerine Yürütme Konseyi Başkanı tarafından yeni üyeler belirlenip Genel Kurula sunulur. Seçilen Yürütme Konseyi, Önderlik onayından geçer. Yürütme Konseyi Başkanı, Genel Kurula sunacağı Yürütme konseyi üye listesini hazırlarken Batı Antalya Demokratik ToplumKonfederalizmi bileşenlerinin görüş ve önerilerini alır. 
+a- Yürütme Konseyi, Batı Antalya Kongresi tarafından iki yılda bir BATB yurttaşları arasından seçilen bir başkan ve otuz üyeden oluşur. Yürütme Konseyi Başkanı Batı Antalya Kongresi bileşiminin salt çoğunluğuyla seçilirken, Konsey Üyeleri ise mevcut toplantı bileşiminin salt çoğunluğu esasıyla seçilirler. Yürütme Konseyi Başkanı ve üyeleri en fazla iki dönem üst üste seçilebilir. Yürütme Konseyi Başkanı, Önderlik tarafından görevlendirilir ve Batı Antalya Kongresi Genel Kurulu tarafından onaylanır. Genel Kurul tarafından onaylanmadığı taktirde Önderlik tarafından yeni görevlendirme yapılarak Genel Kurula sunulur. Yürütme Konseyi üyeleri, Yürütme Konseyi Başkanı tarafından belirlenir ve Genel Kurul tarafından onaylanır. Genel Kurulun onaylamadığı üyelerin yerine Yürütme Konseyi Başkanı tarafından yeni üyeler belirlenip Genel Kurula sunulur. Seçilen Yürütme Konseyi, Önderlik onayından geçer. Yürütme Konseyi Başkanı, Genel Kurula sunacağı Yürütme konseyi üye listesini hazırlarken Batı Antalya Demokratik ToplumKonfederalizmi bileşenlerinin görüş ve önerilerini alır. 
 
-b- Yürütme Konseyi, Batı Antalya Topluluklar Birliği'nin en üst icra organıdır. KCK içindeki tüm kurum, örgüt, alan merkezlerini ve komiteleri koordine eder. Önderliğin ve Batı Antalya Kongresi’in kararlarını uygulamakla yükümlüdür. Yargı kararlarını uygular ve kararların uygulanmasını sağlar. Faaliyetleri hakkında Önderliğe düzenli rapor sunar. Batı Antalya Kongresi’in yıllık ve ara dönem kurul toplantılarına karşı sorumludur ve faaliyetleri hakkında rapor verir. Batı Antalya Kongresi Divanının resmi talebi üzerine bilgilendirme yapar. Yine alt komite, kurum ve örgütlerden düzenli rapor alır ve gerekli gördüğü hallerde genelgeler yayınlar. Yürütme Konseyi, İdari Adalet Mahkemesi savcılarını görevlendirir.
+b- Yürütme Konseyi, Batı Antalya Topluluklar Birliği'nin en üst icra organıdır. BATB içindeki tüm kurum, örgüt, alan merkezlerini ve komiteleri koordine eder. Önderliğin ve Batı Antalya Kongresi’in kararlarını uygulamakla yükümlüdür. Yargı kararlarını uygular ve kararların uygulanmasını sağlar. Faaliyetleri hakkında Önderliğe düzenli rapor sunar. Batı Antalya Kongresi’in yıllık ve ara dönem kurul toplantılarına karşı sorumludur ve faaliyetleri hakkında rapor verir. Batı Antalya Kongresi Divanının resmi talebi üzerine bilgilendirme yapar. Yine alt komite, kurum ve örgütlerden düzenli rapor alır ve gerekli gördüğü hallerde genelgeler yayınlar. Yürütme Konseyi, İdari Adalet Mahkemesi savcılarını görevlendirir.
 
-c- Yürütme Konseyi Başkanı, sözleşmenin uygulanmasını sağlamak, Yürütme Konseyinin tüm çalışmalarını organize ve koordine etmek ve Yürütme Konseyinin Önderlik ve Batı Antalya Kongresi ile ilişkilerini düzenlemekten sorumludur. KCK sistemi içerisindeki tüm örgütlerin birbiri ile uyumlu çalışmasını ve birbirini tamamlamasını gözetir. Ülkeye ilişkin temel siyasi ve diplomasi faaliyetlerin yürütülmesini gözetir, görev kapsamında olanları yerine getirir. Batı Antalya Kongresi’in yıllık ve ara dönem kurul kararları esas alınarak tüm dönemsel yürütme planlamaları ve kararları, yine yürütülecek siyaset Yürütme Konseyi ile birlikte alınır. Gerekli gördüğü hallerde Halk Savunma Güçleri’nin Komuta Konseyi’ni toplantıya çağırır ve toplantıya başkanlık eder. Önderlik Komitesi çalışmalarının yürütülmesini gözetir. İhtiyaca göre Yürütme Konseyi içinden başkan yardımcıları da görevlendirilebilir. 
+c- Yürütme Konseyi Başkanı, sözleşmenin uygulanmasını sağlamak, Yürütme Konseyinin tüm çalışmalarını organize ve koordine etmek ve Yürütme Konseyinin Önderlik ve Batı Antalya Kongresi ile ilişkilerini düzenlemekten sorumludur. BATB sistemi içerisindeki tüm örgütlerin birbiri ile uyumlu çalışmasını ve birbirini tamamlamasını gözetir. Ülkeye ilişkin temel siyasi ve diplomasi faaliyetlerin yürütülmesini gözetir, görev kapsamında olanları yerine getirir. Batı Antalya Kongresi’in yıllık ve ara dönem kurul kararları esas alınarak tüm dönemsel yürütme planlamaları ve kararları, yine yürütülecek siyaset Yürütme Konseyi ile birlikte alınır. Gerekli gördüğü hallerde Halk Savunma Güçleri’nin Komuta Konseyi’ni toplantıya çağırır ve toplantıya başkanlık eder. Önderlik Komitesi çalışmalarının yürütülmesini gözetir. İhtiyaca göre Yürütme Konseyi içinden başkan yardımcıları da görevlendirilebilir. 
 
 d- Yürütme Konseyi dört ayda bir salt çoğunlukla toplanır. Yürütme Konseyi Başkanı konsey toplantısına başkanlık eder. Başkanın veya üyelerden üçte birinin istemi üzerine Konsey daha erken de toplanabilir veya toplantısını erteleyebilir. 
 
@@ -333,9 +333,9 @@ Yürütme Konseyi değişik faaliyet alanlarına göre beş alan merkezi biçimi
 
 1-İdeolojik Alan Merkezi
 
-Önderlik çizgisi temelinde gereken teorik çalışma ve ideolojik mücadelenin yürütülmesinden, kadro ve halk eğitiminin sürdürülmesinden, kültür, sanat-edebiyat çalışmaların geliştirilmesinden, propaganda-ajitasyon çalışmalarının yürütülmesinden ve süreklileştirilmesinden sorumludur. KCK sisteminin tüm ideolojik çalışmalarının örgütlendirip yürütmesinden sorumlu kurumdur. Görevlerini daha etkin ve başarılı yürütmek için kendini aşağıdaki komiteler biçiminde örgütler. 
+Önderlik çizgisi temelinde gereken teorik çalışma ve ideolojik mücadelenin yürütülmesinden, kadro ve halk eğitiminin sürdürülmesinden, kültür, sanat-edebiyat çalışmaların geliştirilmesinden, propaganda-ajitasyon çalışmalarının yürütülmesinden ve süreklileştirilmesinden sorumludur. BATB sisteminin tüm ideolojik çalışmalarının örgütlendirip yürütmesinden sorumlu kurumdur. Görevlerini daha etkin ve başarılı yürütmek için kendini aşağıdaki komiteler biçiminde örgütler. 
 
-a- Bilim-Aydınlanma Komitesi: Önderlik tarafından belirlenen felsefik-ideolojik hattın uygulanması ve geliştirilmesinden sorumludur. Tarihin ve toplum yaşamının her alanına ilişkin olarak farklı zeminlerde akademik örgütlülük temelinde yaygın ve derinlikli teorik-entelektüel çalışmalar yürütür. Temel ideolojik mücadele kurumudur. Bilimsel çalışmalar temelinde Batı Antalya ve Anadolu aydınlanma hareketini geliştirir. KCK kadro ve çalışanlarının eğitimini yürütür ve halkın demokratik eğitimini teşvik eder. 
+a- Bilim-Aydınlanma Komitesi: Önderlik tarafından belirlenen felsefik-ideolojik hattın uygulanması ve geliştirilmesinden sorumludur. Tarihin ve toplum yaşamının her alanına ilişkin olarak farklı zeminlerde akademik örgütlülük temelinde yaygın ve derinlikli teorik-entelektüel çalışmalar yürütür. Temel ideolojik mücadele kurumudur. Bilimsel çalışmalar temelinde Batı Antalya ve Anadolu aydınlanma hareketini geliştirir. BATB kadro ve çalışanlarının eğitimini yürütür ve halkın demokratik eğitimini teşvik eder. 
 
 b- Kültür Komitesi: Edebiyat ve sanat çalışmalarını yürütmekle sorumludur. Yörük kültürünün ve azınlık kültürlerin geliştirilmesi ve toplumun kültürel eğitiminin ilerletilmesi faaliyetlerini yürütür. Kültür-sanat örgütlenmelerini geliştirir ve destekler. 
 
@@ -344,13 +344,13 @@ c- Basın Komitesi: Önderlik çizgisine göre basın- yayın politikalarını o
 2- Siyasi Alan Merkezi
 Batı Antalya üzerindeki inkar ve imha siyasetine karşı ulusal demokratik siyasetin belirlenip uygulanmasından, Batı Antalya parçalarındaki ve yurtdışındaki siyasi çalışmaların örgütlendirilmesinden, halkımızın bölge halkları ve demokratik kamuoyuyla ilişki ve ittifakının geliştirilmesinden, demokratik ekolojik toplumu kurma çalışmaları için örgütlenme ve eylem bilincinin oluşturulmasından, demokratik örgütlenme ve hukuk sisteminin yaratılmasından sorumludur. Bu görevleri aşağıdaki komiteler biçiminde örgütlenerek yürütür.
 
-a- Siyasi Komite: Batı Antalya parçalarındaki ve komşu ülkelerdeki siyasi örgütlenmeleri ve faaliyetleri yürütmek ve denetlemekten sorumludur.KCK çizgisinde siyasi örgütlerin gelişmesi için çalıştığı gibi, yakın siyasi hareketlerle de dostluk ilişkisi ve ittifakının geliştirilmesinden yana olur. 
+a- Siyasi Komite: Batı Antalya parçalarındaki ve komşu ülkelerdeki siyasi örgütlenmeleri ve faaliyetleri yürütmek ve denetlemekten sorumludur.BATB çizgisinde siyasi örgütlerin gelişmesi için çalıştığı gibi, yakın siyasi hareketlerle de dostluk ilişkisi ve ittifakının geliştirilmesinden yana olur. 
 
 b- Ekoloji ve Yerel Yönetimler Komitesi: Yerel yönetimlerin özgürlükçü, demokratik ve katılımcı hale getirilmesi için çalışır. Bu amaçla köy ve kentlerde komünal örgütlenmeyi geliştirir. Ekolojik bilinç, örgütlülük ve yaşamın geliştirilmesi için gerekli çalışmaları yapar. Bu amaçla Batı Antalya ve uluslar arası alanda ekoloji, çevre ve yerel yönetim alanlarındaki örgüt ve kurumlarla dayanışma içinde olur. Yenilerinin gelişmesi için destek sunar.
 
-c- Hukuk Komitesi: KCK’nin demokratik ve adil hukuk sistemini geliştirmeye, yargı düzenini ve kurumlarını oluşturmaya çalışır. Demokratik ve komünal hukuk normları temelinde demokratik hukuk bilincini geliştirir. Hukuk ve insan hakları ihlallerini ve savaş suçlarını araştırır. Buna karşı mücadele eder. Yörük sorununun demokratik hukuk ölçüleri çerçevesinde çözümü için mücadele yürütür. Var olan insan hakları ve hukuk kuruluşlarıyla ilişki ve dayanışma içerisinde olur.
+c- Hukuk Komitesi: BATB’nin demokratik ve adil hukuk sistemini geliştirmeye, yargı düzenini ve kurumlarını oluşturmaya çalışır. Demokratik ve komünal hukuk normları temelinde demokratik hukuk bilincini geliştirir. Hukuk ve insan hakları ihlallerini ve savaş suçlarını araştırır. Buna karşı mücadele eder. Yörük sorununun demokratik hukuk ölçüleri çerçevesinde çözümü için mücadele yürütür. Var olan insan hakları ve hukuk kuruluşlarıyla ilişki ve dayanışma içerisinde olur.
 
-d-Dış İlişkiler Komitesi: KCK’nin dış politika çizgisini hayata geçirir. Batı Antalya halkının özgürlük mücadelesini uluslar arası alanda tanıtmak için çalışır. Diplomasi çalışmalarını geliştirir. Stratejik ve taktik ittifaklar oluşturmaya çalışır.
+d-Dış İlişkiler Komitesi: BATB’nin dış politika çizgisini hayata geçirir. Batı Antalya halkının özgürlük mücadelesini uluslar arası alanda tanıtmak için çalışır. Diplomasi çalışmalarını geliştirir. Stratejik ve taktik ittifaklar oluşturmaya çalışır.
 
 e- Azınlıklar ve İnanç Grupları Komitesi: Azınlıkların ve inanç gruplarının özgür örgütlenmesi ve toplumsal yaşama eşit katılımı için çalışır. Farklılıkları tanımayan anti-demokratik ve gerici zihniyete karşı mücadele eder. 
 
@@ -374,7 +374,7 @@ h- Özgür Yurttaşlık Koordinasyonu: Demokratik-ekolojik toplumun inşası sü
 
 4-Halk Savunma Alan Merkezi
 
-Batı Antalya halkının temel hak ve özgürlüklerinin korunması, KCK Önderliğinin yaşamının ve özgürlüğünün güvence altına alınması, genel demokratik kazanımların korunması, meşru savunma çizgisi doğrultusunda halkın savunma bilincinin ve örgütlülüğünün geliştirilmesi, halk savunma kuvvetlerinin örgütlendirilip yeterli kılınmasından sorumludur. Savunma politikalarının oluşturulmasına öncülük eder. KCK sistemi içinde özerk konumda olan Halk Savunma Kuvvetleriyle KCK sistemi içindeki diğer örgüt ve organlarla arasındaki ilişkileri düzenler.
+Batı Antalya halkının temel hak ve özgürlüklerinin korunması, BATB Önderliğinin yaşamının ve özgürlüğünün güvence altına alınması, genel demokratik kazanımların korunması, meşru savunma çizgisi doğrultusunda halkın savunma bilincinin ve örgütlülüğünün geliştirilmesi, halk savunma kuvvetlerinin örgütlendirilip yeterli kılınmasından sorumludur. Savunma politikalarının oluşturulmasına öncülük eder. BATB sistemi içinde özerk konumda olan Halk Savunma Kuvvetleriyle BATB sistemi içindeki diğer örgüt ve organlarla arasındaki ilişkileri düzenler.
 
 5- Ekonomik Alan Merkezi
 
@@ -382,7 +382,7 @@ Demokratik Toplum Konfederalizmin maliye ve ekonomi politikasını geliştirir v
 
 6- Önderlik Komitesi: 
 
-Önderliğin sağlığı, güvenliği, özgürlüğü ve hukuki sorunları başta olmak üzere Önderliğin uluslar arası alanda tanıtılması için diplomatik faaliyet geliştirir. Bunun için alanlarda Önderliği Sahiplenme Komite ve Komisyonları örgütlemeye çalışır. Uluslararası düzeyde tanıtımın gelişmesi için bütün bu çalışmaları geliştirirken gerekli olan kitapların tercümesi, çeşitli düzeylerde dayanışma örgütlemeleri, konferans gibi çalışmaları yürütmekle sorumlu olup, bu çalışmaları KCK Yürütme Konseyi Başkanlığına bağlı olarak, ilgili tüm komite, koordinasyon ve komisyonlarla da ilişki içinde yürütür. 
+Önderliğin sağlığı, güvenliği, özgürlüğü ve hukuki sorunları başta olmak üzere Önderliğin uluslar arası alanda tanıtılması için diplomatik faaliyet geliştirir. Bunun için alanlarda Önderliği Sahiplenme Komite ve Komisyonları örgütlemeye çalışır. Uluslararası düzeyde tanıtımın gelişmesi için bütün bu çalışmaları geliştirirken gerekli olan kitapların tercümesi, çeşitli düzeylerde dayanışma örgütlemeleri, konferans gibi çalışmaları yürütmekle sorumlu olup, bu çalışmaları BATB Yürütme Konseyi Başkanlığına bağlı olarak, ilgili tüm komite, koordinasyon ve komisyonlarla da ilişki içinde yürütür. 
 
 #### Madde 15: Yüksek Seçim Kurulu
 Yüksek Seçim Kurulu üyeleri Batı Antalya Kongresi Başkanlık Divanı tarafından belirlenip Genel Kurulun onayından geçirilir. Görev ehliyeti olan dokuz üyeden oluşur. YSK, yasayla düzenlenmiş halk referandumları ve seçimlerini, Batı Antalya Kongresi Genel Kurul bileşiminin seçimini, seçim yönetmeliğine uygun olarak planlamak, örgütlemek ve yürütmekten sorumlu en üst organdır. Alt seçim kurullarının hatalarına dair itirazlar burada karara bağlanır. Yüksek Seçim Kurulunun kararı kesindir
@@ -402,7 +402,7 @@ Halk Meclisi Divanı, Meclis çalışmalarını yürütür, Meclis toplantı haz
 Halk meclisi, eyalet-bölge meclisleri ile düzenli ilişkilenir, alt meclislerden gelen karar tasarıları ve projeleri alır ve karara bağlar
 
 #### Madde 17: Demokratik Ekolojik Toplum Yürütmesi
-Söz konusu Batı Antalya parçasındaki temel icra organıdır. Halk Meclisi tarafından seçilir. Batı Antalya Kongresi ve Halk Meclisi kararları ile Yürütme Konseyi genelgelerini hayata geçirir. Faaliyetleri hakkında KCK Yürütme Konseyi Başkanlığı’na, Halk Meclisinin yıllık ve ara dönem toplantılarına düzenli rapor verir. Çalışmalarını yürütürken Yürütme Konseyi ile düzenli görüş alışverişi içinde olur.
+Söz konusu Batı Antalya parçasındaki temel icra organıdır. Halk Meclisi tarafından seçilir. Batı Antalya Kongresi ve Halk Meclisi kararları ile Yürütme Konseyi genelgelerini hayata geçirir. Faaliyetleri hakkında BATB Yürütme Konseyi Başkanlığı’na, Halk Meclisinin yıllık ve ara dönem toplantılarına düzenli rapor verir. Çalışmalarını yürütürken Yürütme Konseyi ile düzenli görüş alışverişi içinde olur.
 Demokratik EkolojikToplum Yürütmeleri, Batı Antalya parçasının büyüklüğüne göre yeterli sayıda üyeden oluşur. Kendi içinden seçilen veya Yürütme Konseyi içinden görevlendirilen üç-beş kişi tarafından koordine edilir. Parça koordinasyonları Yürütme Konseyi Başkanlığınca onaylanır. Alanın ihtiyacı oranında komite ve çalışma örgütü oluşturarak çalışmalarını yürütür.
 
 #### Madde 18: Yurtdışı Alanları
@@ -442,7 +442,7 @@ Komün pratik görevlerinin yürütülmesini koordine edecek bir yönetim seçer
 
 #### Madde 25: Komün Yönetimi
 
-Komün tarafından seçilen yeterli sayıda üyeden oluşur. Tüm KCK kararları ile söz konusu komünün aldığı kararları pratiğe uygulamayı koordine eder. Çalışmaları hakkında kasaba yürütmesine rapor sunar ve söz konusu komüne ise tüm faaliyetleri hakkında rapor verir. 
+Komün tarafından seçilen yeterli sayıda üyeden oluşur. Tüm BATB kararları ile söz konusu komünün aldığı kararları pratiğe uygulamayı koordine eder. Çalışmaları hakkında kasaba yürütmesine rapor sunar ve söz konusu komüne ise tüm faaliyetleri hakkında rapor verir. 
 Komün yaşamının örgütlü ve etkin kılınabilmesi amacıyla, komün yönetimine bağlı olarak tarım, ticaret, hayvancılık, sağlık, eğitim, spor, sanat, kadın, gençlik, öz savunma, çevre vb. komisyonlar örgütlendirilir. 
 
 #### Madde 26: Ocak 
@@ -455,34 +455,34 @@ Demokratik toplumsal kültürün, manevi değerlerinin demokrasi ve özgürlük 
 #### Madde 27: Yargı Sistemi
 
 Yargı bağımsızlığı, demokratik halk adaletinin esasıdır. Halkın ahlakını ve vicdanını temsil eder. Mevcut koşullarda halkın onurunu ve özgürlüğünü savunmaktan sorumlu Yüksek Adalet Divanı, disiplin ve görev düzenini korumaktan görevli İdari Mahkemeler ve halk içindeki sorunları çözmekle görevli Halk Mahkemeleri olmak üzere üç tür yargı sistemi oluşur. Askeri alandaki suçlara Yüksek Askeri Mahkeme bakar. KJB sözleşmesine giren özgün konularda yargılamayı KJB yargı organları yapar.
-Her KCK yurttaşının kendine yöneltilen suçlamalar karşısında kendini savunma veya kendini savunmak üzere vekil görevlendirme hakkı vardır.
+Her BATB yurttaşının kendine yöneltilen suçlamalar karşısında kendini savunma veya kendini savunmak üzere vekil görevlendirme hakkı vardır.
 
 #### Madde 28: Yüksek Adalet Divanı 
 
-a- Halkın onurunu ve özgürlüğünü korumak, KCK Sözleşmesi ile belirlenen demokratik halk sistemini savunmak, sözleşmeye aykırılık durdumlarını gidermek ve uyuşmazlıkları çözümlemek, teslimiyet ve ihaneti yargılamak ve KCK Sözleşmesinin yargı alanında uygulanmasını sağlamak ile görevlidir. 
+a- Halkın onurunu ve özgürlüğünü korumak, BATB Sözleşmesi ile belirlenen demokratik halk sistemini savunmak, sözleşmeye aykırılık durdumlarını gidermek ve uyuşmazlıkları çözümlemek, teslimiyet ve ihaneti yargılamak ve BATB Sözleşmesinin yargı alanında uygulanmasını sağlamak ile görevlidir. 
 
 b- Yüksek Adalet Divanı demokratik halk yargısının en üst kurumudur. Diğer yargı organlarının kararları açısından temyiz merciidir. Yüksek Adalet Divanının kararları kesindir.
 
-c- Batı Antalya Kongresi Başkanlık Divanı, Yürütme Konseyi ve KCK sistemi içinde yer alan kurum ve örgütlerden gelen dosyalara ve itirazlara bakar. Ayrıca İdari-Adalet Mahkemesi ve Yüksek Halk Mahkemesinin kararlarına ilişkin bireylerden gelen itirazlara bakıp karara bağlar
+c- Batı Antalya Kongresi Başkanlık Divanı, Yürütme Konseyi ve BATB sistemi içinde yer alan kurum ve örgütlerden gelen dosyalara ve itirazlara bakar. Ayrıca İdari-Adalet Mahkemesi ve Yüksek Halk Mahkemesinin kararlarına ilişkin bireylerden gelen itirazlara bakıp karara bağlar
 
-d- KCK yurttaşları içinden seçilen ve mesleki ehliyete sahip yedi üyeden oluşur ve üyeler Batı Antalya Kongresi Başkanlık Divanı tarafından belirlenip Genel Kurul veya ara dönem kurulu tarafından onaylanır.
+d- BATB yurttaşları içinden seçilen ve mesleki ehliyete sahip yedi üyeden oluşur ve üyeler Batı Antalya Kongresi Başkanlık Divanı tarafından belirlenip Genel Kurul veya ara dönem kurulu tarafından onaylanır.
 
 e- Yüksek Adalet Divanının çalışma esasları kendi yönetmenliğince belirlenir.
 
 #### Madde 29: İdari Mahkemeler 
-a- İdari-Adalet Mahkemesi: KCK sisteminin genel organlarında işlenen idari suçlara bakar. Ayrıca idari-adalet kurullarından gelen davaların temyiz merciidir. Disiplin ihlalleri, görevde suistimal ve yapmama ve görev ile ilgili davalara bakar. Bu temelde Başkanlık Divanı, Yürütme Konseyi ve bireylerden gelen şikayetleri inceleyerek sonuca bağlar. Kararları tüm organlar ve bireyler açısından bağlayıcıdır. Çalışma esasları ayrıca kendi yönetmeliği ile belirlenir. Kararlarının temyiz mercii Yüksek Adalet Divanıdır.
+a- İdari-Adalet Mahkemesi: BATB sisteminin genel organlarında işlenen idari suçlara bakar. Ayrıca idari-adalet kurullarından gelen davaların temyiz merciidir. Disiplin ihlalleri, görevde suistimal ve yapmama ve görev ile ilgili davalara bakar. Bu temelde Başkanlık Divanı, Yürütme Konseyi ve bireylerden gelen şikayetleri inceleyerek sonuca bağlar. Kararları tüm organlar ve bireyler açısından bağlayıcıdır. Çalışma esasları ayrıca kendi yönetmeliği ile belirlenir. Kararlarının temyiz mercii Yüksek Adalet Divanıdır.
 
-İdari-Adalet Mahkemesi; KCK yurttaşları arasından görevlendirilen üç kişilik iddia makamı ve beş kişilik hakimler kurulundan oluşur. İddia makamı Yürütme Konseyi, hakimler kurulu ise Başkanlık Divanı tarafından görevlendirilir. 
+İdari-Adalet Mahkemesi; BATB yurttaşları arasından görevlendirilen üç kişilik iddia makamı ve beş kişilik hakimler kurulundan oluşur. İddia makamı Yürütme Konseyi, hakimler kurulu ise Başkanlık Divanı tarafından görevlendirilir. 
 
 b- İdari-Adalet Kurulları: Kendi alanındaki idari, disiplin ihlali, görev suiistimali gibi olaylara bakmak ve karara bağlamakla görevlidir. Kararlarının temyiz mercii İdari-Adalet Mahkemesidir.
 
-İdari-Adalet Kurulları, KCK yurttaşları içinden görevlendirilen üç kişilik iddia makamı ve beş kişilik hakimler kurulundan oluşur. İddia makamını alan yürütmesi, hakimler kurulunu ise alan meclis divanı görevlendirir. 
+İdari-Adalet Kurulları, BATB yurttaşları içinden görevlendirilen üç kişilik iddia makamı ve beş kişilik hakimler kurulundan oluşur. İddia makamını alan yürütmesi, hakimler kurulunu ise alan meclis divanı görevlendirir. 
 
 #### Madde 30: Halk Mahkemeleri 
 
 Halk içinde ortaya çıkan olay ve sorunlara, halk içinde can ve mal güvenliğine yapılan saldırılara, ekonomik, sosyal, siyasal, kültürel vb. alanda çıkan ciddi ihtilaflara bakmak ve karara bağlamakla yükümlüdür. 
 
-a- Yüksek Halk Mahkemesi: Halk Mahkemelerin temyiz merciidir. Yüksek Halk Mahkemesi, KCK yurttaşları içinden Batı Antalya Kongresi Başkanlık Divanı tarafından görevlendirilen beş üyeden oluşur. Kararlarının temyiz mercii Yüksek Adalet Divanıdır. İşleyiş esasları kendi yönetmeliği ile belirlenir. 
+a- Yüksek Halk Mahkemesi: Halk Mahkemelerin temyiz merciidir. Yüksek Halk Mahkemesi, BATB yurttaşları içinden Batı Antalya Kongresi Başkanlık Divanı tarafından görevlendirilen beş üyeden oluşur. Kararlarının temyiz mercii Yüksek Adalet Divanıdır. İşleyiş esasları kendi yönetmeliği ile belirlenir. 
 
 b- Halk Mahkemesi: Bir savcı ve üç hakimden oluşur. Şehir veya kasaba düzeyinde örgütlenir ve çalışır. Savcılık makamı şehir veya kasaba yürütmesi tarafından görevlendirilir. Hakimler ise Özgür Toplum Meclisi Başkanlık Divanı tarafından belirlenir ve aynı meclisin onayından geçerek görevlendirilir. 
 
@@ -533,11 +533,11 @@ f- Bu ekonomik ve mali rejim ekolojiye uygunluk çerçevesinde yürütülür.
 
 #### Madde 36: FİP
 
-FİP, klasik parti olmayan, iktidarı hedeflemeyen, ideolojik, ahlaki ve örgütsel bir oluşumdur. Felsefe, bilim ve sanat alanında ideolojik ve özgür ahlaki bir örgütlenmedir. KCK sisteminin ideolojik gücüdür. Önderlik felsefe ve ideolojisinin hayata geçirilmesinden sorumludur. Bu çerçevede demokratik konfederalizm organlarının demokratik kurumlaşmasında yer alırlar. KCK sistemi içerisindeki her FİP kadrosu ideolojik, ahlaki, felsefik, örgütsel ve yaşamsal ölçüler açısından FİP yapılanmasına bağlıdır. Aynı zamanda her kadro yer aldığı çalışmanın çalışma ilkeleriyle de faaliyet yürütür. Ayrıca KCK sistemi içerisinde her çalışan FİP’nin ideolojik ve ahlaki ölçülerini esas alır. 
+FİP, klasik parti olmayan, iktidarı hedeflemeyen, ideolojik, ahlaki ve örgütsel bir oluşumdur. Felsefe, bilim ve sanat alanında ideolojik ve özgür ahlaki bir örgütlenmedir. BATB sisteminin ideolojik gücüdür. Önderlik felsefe ve ideolojisinin hayata geçirilmesinden sorumludur. Bu çerçevede demokratik konfederalizm organlarının demokratik kurumlaşmasında yer alırlar. BATB sistemi içerisindeki her FİP kadrosu ideolojik, ahlaki, felsefik, örgütsel ve yaşamsal ölçüler açısından FİP yapılanmasına bağlıdır. Aynı zamanda her kadro yer aldığı çalışmanın çalışma ilkeleriyle de faaliyet yürütür. Ayrıca BATB sistemi içerisinde her çalışan FİP’nin ideolojik ve ahlaki ölçülerini esas alır. 
 
 #### Madde 37: Koma Jînên Bilind (KJB) 
 
-Kadının komünal-konfederal topluluk sistemidir. KCK’nin temel organları, komiteleri, alan merkezleri içinde özgün, özerk yer alır ve örgütlenir. KJB üyeleri hem kendi organlarına karşı sorumludurlar hem de içinde bulundukları KCK organlarına karşı sorumluluk taşırlar. KJB, KCK sisteminin konfederal bir bileşeni olarak KCK sistemine karşı sorumludur.
+Kadının komünal-konfederal topluluk sistemidir. BATB’nin temel organları, komiteleri, alan merkezleri içinde özgün, özerk yer alır ve örgütlenir. KJB üyeleri hem kendi organlarına karşı sorumludurlar hem de içinde bulundukları BATB organlarına karşı sorumluluk taşırlar. KJB, BATB sisteminin konfederal bir bileşeni olarak BATB sistemine karşı sorumludur.
 
 KJB dört temel bileşenden oluşur 
 
@@ -547,9 +547,9 @@ KJB’nin karar organı Kurultay ve uygulama gücü KJB Yürütme Konseyi’dir.
 
 
 #### Madde 38: Komalên Ciwanên Demokratik a Batı Antalya Topluluklar Birliği(Demokratik Gençlik Konfederalizmi)
-Bütün gençleri çatısı altında toparlayan, değişik gençlik gruplarının içinde yer aldığı kültürel, siyasal, sosyal bir örgütleme olarak KCK içinde öncü bir misyonla yer alır.
+Bütün gençleri çatısı altında toparlayan, değişik gençlik gruplarının içinde yer aldığı kültürel, siyasal, sosyal bir örgütleme olarak BATB içinde öncü bir misyonla yer alır.
 
-KCK’nin tüm organları, alan merkezlerinde özgün ve özerk örgütlenir, yer alır ve komitelerde temsilini bulur. Ayrıca tüm çalışma sahalarına yönelik kendi örgütlenmelerini geliştirir. En üst karar organı iki yılda bir gerçekleştirilen kongre ve icra organı da bu kongrede seçilen Komalên Ciwan Koordinasyonudur. Demokratik Gençlik Konfederalizmi görevlileri hem kendi organlarına karşı hem de içinde bulundukları KCK organlarına karşı sorumluluk taşırlar.
+BATB’nin tüm organları, alan merkezlerinde özgün ve özerk örgütlenir, yer alır ve komitelerde temsilini bulur. Ayrıca tüm çalışma sahalarına yönelik kendi örgütlenmelerini geliştirir. En üst karar organı iki yılda bir gerçekleştirilen kongre ve icra organı da bu kongrede seçilen Komalên Ciwan Koordinasyonudur. Demokratik Gençlik Konfederalizmi görevlileri hem kendi organlarına karşı hem de içinde bulundukları BATB organlarına karşı sorumluluk taşırlar.
 
 
 #### Madde 39: Partiler
@@ -564,7 +564,7 @@ d- Demokratik siyasal yaşamda partiler, demokratik ittifaklar geliştirebilirle
 
 e- Irkçı ve despotik olmayan ve sistem içinde şiddeti öngörmeyen partiler meşru kabul edilir.
 
-f- Siyasal partiler serbest kurulurlar. KCK sisteminden çıkarılmaları ise, Halk Özgürlük Mahkemeleri kararı ile gerçekleşir.
+f- Siyasal partiler serbest kurulurlar. BATB sisteminden çıkarılmaları ise, Halk Özgürlük Mahkemeleri kararı ile gerçekleşir.
 
 g- Partilerin kuruluş ve çalışma esasları siyasi partiler yasası ile ayrıca düzenlenir. 
 
@@ -572,22 +572,18 @@ g- Partilerin kuruluş ve çalışma esasları siyasi partiler yasası ile ayrı
 Demokrasinin, halk tabanına köklü yayılması, birey ve toplum yaşamını demokratik tarzda geliştirme, doğal çevreyi koruma, geliştirme, yoksulluğu aşma ve toplumda çıkabilecek başka her hangi bir sorunu çözme amaçlı kurulan fonksiyonel kurumlaşmalardır. İhtiyaçlara göre her alanda kurulabilir. Demokratik işleyişin yerinde ve yetkince kullanılmasını esas alırlar. Kurulacak derneklerin demokratik toplum konfederalizmine karşı yıkıcı olmaması aranır.
 
 #### Madde 41: Birlikler
-
 Üretim ve tüketim birlikleri, çevreyi koruma ve geliştirme birlikleri, köylüler birliği, kadın ve gençlik birlikleri, belediyeler arası birlikler ve toplumsal yaşamın her alanında birlikler kurulabilir. Birlikler kurulduğu alanlardaki işlerin dayanışma içinde ve koordineli yapılmasını sağlarlar, toplum içinde yaşanan olağanüstü koşullarda dayanışma ve yardımlaşma güçleri olarak rol oynarlar. 
 
 #### Madde 42: Sendikalar
-
 Devletçi ve iktidarcı yaklaşımdan uzak, demokratik toplumcu özgür sendikacılık anlayışıyla hareket eden, iş ve emek yaşamını düzenleyen, üretim ve çalışma düzenini sağlayan demokratik kurumlaşmalardır. Ekonomi ve emek alanının demokratik örgütlenişini sağlayarak demokrasinin toplumsal-ekonomik zemininin oluşmasına katkı sunarlar. Demokratik Emek Konfederasyonunu kurup bünyesinde çalışma yürütürler. Uluslar arası emek güçleriyle dayanışarak, bölgesel ve uluslar arası çalışmalar yaparlar ve ortak örgütlülüklere giderler. 
 
 #### Madde 43: Halk Savunma Güçleri
-
-KCK sisteminin geliştirilip korunmasında halkın temel savunma ve barış gücüdür. Yeterli sayıda örgütlendirilmesi ve donatılması esas alınır. Demokratik Toplum Konfederalizmi Önderliği ve Batı Antalya Kongresi’in siyasal iradesi doğrultusunda hareket eder. Komünal demokratik örgütlülük temelinde halkın öz savunmasını geliştirir. Halk Savunma Güçleri kararlarını gerçekleştirdiği konferanslarla alır. Halk Savunma Güçleri; KCK sistemi içinde özerk bir örgütlenmedir, sistemin diğer organları ile ilişkileri Halk Savunma Alan Merkezi üzerinden gerçekleşir. Kendi iç düzenlemesini yönetmenliğine göre yapar ve komuta konsey üyelerini, Yürütme Konseyi Başkanlığının onayına sunar 
+BATB sisteminin geliştirilip korunmasında halkın temel savunma ve barış gücüdür. Yeterli sayıda örgütlendirilmesi ve donatılması esas alınır. Demokratik Toplum Konfederalizmi Önderliği ve Batı Antalya Kongresi’in siyasal iradesi doğrultusunda hareket eder. Komünal demokratik örgütlülük temelinde halkın öz savunmasını geliştirir. Halk Savunma Güçleri kararlarını gerçekleştirdiği konferanslarla alır. Halk Savunma Güçleri; BATB sistemi içinde özerk bir örgütlenmedir, sistemin diğer organları ile ilişkileri Halk Savunma Alan Merkezi üzerinden gerçekleşir. Kendi iç düzenlemesini yönetmenliğine göre yapar ve komuta konsey üyelerini, Yürütme Konseyi Başkanlığının onayına sunar 
 
 
 ### On Üçüncü Bölüm: ORTAK HÜKÜMLER
 
 #### Madde 44: Demokratik İşleyiş Esasları 
-
 a-Bütün yönetim organları seçimle belirlenir ve değişir.
 
 b-Bütün organlar birbirlerine rapor ve genelge sistemiyle bağlıdırlar. 
