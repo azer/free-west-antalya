@@ -48,7 +48,7 @@ Bu ilkeler temelinde ve 2005 yılı nevruzun da Yörük halkının Demokratik Ko
 **Azer Koçulu**
 
 
-### Batı Antalya Topluluklar Birliği
+## Batı Antalya Topluluklar Birliği
 
 ### Başlangıç
 
