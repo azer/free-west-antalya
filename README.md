@@ -1,6 +1,8 @@
-## Batı Antalya Topluluklar Birliği
+## Batı Antalya Topluluklar Birliği (Union of Communities in West Antalya)
 
-BATB (Union of Communities in West Antalya) Documents.
+##### Bu döküman Demokratik, Konfedaratif Özerk Batı Antalya Deklarasyonudur. 
+
+##### This document declares the Democratic Confederative, Self Governing West Antalya.
 
 ## Harita (Map)
 
