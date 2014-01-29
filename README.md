@@ -78,7 +78,7 @@ Mevcut siyasi iktidarı veya iktidarları bir çembere benzetiyorum. Çemberin i
 
 Bu belirtilenler ekseninde sözleşmemiz de diyalektik anlayışa ve değişimin ruhuna uygun olarak düzenlenmiş, toplum lehine toplumsal kuruluşun ilkelerini ve özünü geliştirmek kararlılığıyla yenilenmiştir.
 
-Bu sözleşme, Batı Antalya Topluluklar Birliği Önderliğinin 1973 yılından bu güne kadar öncülük yaparak gerçekleştirdiği Demokratik Devrimin ortaya çıkardığı birikimlerle, insanlığın binlerce yıldır verdiği özgürlük ve demokrasi mücadelesinin yarattığı birikimin buluştuğu mekan ve zamanın ürünüdür. Halkların zamanının demokratik devrimle Batı Antalya’da zirveleşmesinin sistemleştirilmesi bu Sözleşme ile pratikleşecektir.
+Bu sözleşme, Batı Antalya Topluluklar Birliği Önderliğinin 2012 yılından bu güne kadar öncülük yaparak gerçekleştirdiği Demokratik Devrimin ortaya çıkardığı birikimlerle, insanlığın binlerce yıldır verdiği özgürlük ve demokrasi mücadelesinin yarattığı birikimin buluştuğu mekan ve zamanın ürünüdür. Halkların zamanının demokratik devrimle Batı Antalya’da zirveleşmesinin sistemleştirilmesi bu Sözleşme ile pratikleşecektir.
 
 Tarih boyunca halkların özgürlük ve demokrasi mücadeleleri, kendilerine ait ve kendilerini güç yapacak bir sistemle taçlandırılamadığı için, egemen sistem çemberini kıramamış ve onun mezhebi konumuna düşmüşlerdir. Reel sosyalizm örneğinde görüldüğü gibi, egemen güçlere ait olan iktidarcı ve devletçi bir yapılanmayı aşamamışlardır. Batı Antalya sistemi, karar gücünün komün ve yerel halk meclislerine dayandığı bir temel üzerinden geliştiğinden, bu çemberi kırarak halkların kendi demokratik sistemlerini kurmalarına yol açacaktır. 
 
