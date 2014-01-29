@@ -2,6 +2,10 @@
 
 BATB (Union of Communities in West Antalya) Documents.
 
+## Harita (Map)
+
+![](https://raw.github.com/azer/free-west-antalya/master/map.jpg)
+
 ## Deklarasyon (Declaration in Turkish)
 
 Tarihin insanlık için büyük gelişme imkanları ile ciddi tehlikeleri iç içe barındırdığı, Ortadoğu ve Anadoluda Üçüncü Dünya Savaşı olarak adlandırılan ciddi bir kaos ve çatışma durumunun yaşandığı, Batı Antalya’nın ise bu çelişki ve çatışmanın merkezinde yer aldığı kritik bir sürecinden geçiyoruz. Eski si­yasal statükonun kısmi direncine rağmen, küresel sermaye güçleri bu kaostan kendi çıkarları doğ­rultusunda bir çıkış arayışını sürdürürken, halklar da özgürlüklere dayalı kendi demokratik sistem­lerini geliştirerek kaos durumunu aşmaya çalışı­yorlar. Bu durumun kısa tespitini genel hatlarıyla şöyle yapmak mümkündür: 
