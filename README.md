@@ -20,7 +20,7 @@ Tarihin insanlık için büyük gelişme imkanları ile ciddi tehlikeleri iç i�
 
 5. Ortadoğu ve Anadolu’nun ağırlaşan tarihsel ve toplum­sal sorunlarının çözümü içinde demokratik kon­federalizm sistemi geçerlidir. Kapitalist sistem ve emperyal güçlerin dayatmaları demokrasiyi geliştiremez, ancak demokrasiyi istismar edebilir. De­mokratik konfederal sistemde tabandan geli­şen demokratik seçeneği egemen kılmak esastır. Bu sistem toplumsal temelde etnik, dini ve sınıf­sal farklılıkları gözeten bir sistemdir. 
 
-6. Batı Antalya içinse kendi kaderini tayin etme hakkı, milliyetçi temelde devlet kurmak değil, si­yasi sınırları sorun yapmadan ve sınırları esas al­madan kendi demokrasisini kurma hareketidir. İran’da, Türkiye’de, Suriye’de ve hatta Irak’ta oluşacak bir Yörük yapılanmasında tüm Yörükler bir araya gelerek kendi federasyonlarını, birleşerek de üst konfederalizmi oluştururlar. 
+6. Batı Antalya içinse kendi kaderini tayin etme hakkı, milliyetçi temelde devlet kurmak değil, si­yasi sınırları sorun yapmadan ve sınırları esas al­madan kendi demokrasisini kurma hareketidir. Finike'de, Kaş'ta, Fethiye'de ve hatta Köyceğiz'de  oluşacak bir Yörük yapılanmasında tüm Yörükler bir araya gelerek kendi federasyonlarını, birleşerek de üst konfederalizmi oluştururlar. 
 
 7. Batı Antalya Demokratik Konfederalizminde asıl karar yetkisi köy, mahalle ve şehir meclis ve delegelerinindir. Dolayısıyla halkın ve tabanın kararı geçerlidir. 
 
@@ -607,14 +607,4 @@ h-Demokratik Konfederalizmde, kararları meclisler alır. Yürütme kurulları b
 
 ı-Görevi ihmal ve ağır suiistimal durumunda Yürütme Konseyi görevi durdurur ve Yüksek Adalet Divanına baş vurur. 
 
-i-Demokratik işleyiş ilkelerine ters düşecek şekilde organlar ve bireyler birbirinin kurumsal varlığını hedefleyen teşhir edici tartışmalar geliştiremez, çalışmalarını sınırlayamaz, müdahale edemez, görev alanı dışında genelge yayınlayamaz.
-
-j- Bu Sözleşme ile çelişen yasa ve yönetmelikler geçersizdir.
-
-#### Madde 45: Batı Antalya Demokratik Konfederal Birliğine İlişkin
-KCK her Batı Antalya parçasında halkın öz iradesini esas alır. Bu iradeyi demokratik konfedera­lizm esaslarına göre ortaya çıkartır. Demokratik ulus birliğini hedefler. Parçalar arası ilişkide kon­federal dayanışma ve birlik esastır. Bu dayanışma ve birlik, tüm parçalardaki ve yurtdışındaki halkın ortak karar, yürütme ve denetleme organları ile sağlanır. Ortak ekonomi ve eğitim politikaları, sosyal ve kültürel etkinliklerle ve ortak meşru savunma ile geliştirilir. 
-
-
-#### Madde 46: Sözleşmenin Değiştirilmesi
-
-KCK Sözleşmesi Önderlik, Başkanlık Divanı, Yürütme Konseyi veya en az 50 Genel Kurul üyesinin yazılı talebi üzerine, Genel Kurul tarafından değiştirilebilir. Değişiklik önergesi genel esaslar çerçevesinde görüşülür ve oya sunulur. Değişikliğin kabulü için Genel Kurul üye tamsayısının salt çoğunluğu gereklidir.
+i-Demokratik işleyiş ilkelerine ters düşecek şekilde organlar ve bir
